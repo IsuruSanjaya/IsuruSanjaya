@@ -1,4 +1,4 @@
-Hi I’m B.G.Isuru Sanjaya Ariyananda studying in SLIIT campus Malabe in 3rd year
+Hi I’m B.G.Isuru Sanjaya Ariyananda studying in SLIIT campus Malabe in 4rd year
 faculty of computing 
 
 - 🌱 I’m currently learning in SLIIT Campus Malabe in Faculty of Computing 
